@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JamalOne1
 - 👀 I’m interested in peace love and understanding
-- 🌱 I’m currently learning life and fly a Cessna Caravan 208 - Textron Aviation in MSFS2020
+- 🌱 I’m currently learning life and fly a Cessna Caravan 208 - Textron Aviation in MSFS2020 -> MSFS2024
 - 📫 How to reach me if you must, try jamalmarlone@gmail.com 
 
 <!---
